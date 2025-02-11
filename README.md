@@ -1,1 +1,0 @@
-# E-Ticaret-Sat-Analizi-Projesi
